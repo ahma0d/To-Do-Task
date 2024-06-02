@@ -62,6 +62,7 @@ In closing ,Thank you all for your good work and commitment.
 Let's continue striving for excellence in all our endeavors.
 
 best regards
+
 Ahmad awad
 
-{ email : ahmad.1423@awad@gmail.com , phone: 0936354601 }
+{ email : ahmad.1423awad@gmail.com , phone: 0936354601 }
